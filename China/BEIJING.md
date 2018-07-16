@@ -1,3 +1,3 @@
 # 🇨🇳 &nbsp; Beijing
-
+I'm interested in Elastos and live in Beijing。If you want to talk anything about Elastos . U can add me by WeChat dongfangbt
 ... 
